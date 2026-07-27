@@ -2,5 +2,8 @@
 <a href="https://rentry.co/irwasyh">-----</a>  
 </p>
 
+
+<p align="center">
 school rps or with friends 
-no ships purely platonic relationships
+no ships 
+</p>
