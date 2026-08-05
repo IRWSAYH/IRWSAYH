@@ -1,9 +1,3 @@
 <p align="center">
-<a href="https://rentry.co/irwasyh">-----</a>  
-</p>
-
-
-<p align="center">
-school rps or with friends 
-no ships 
+<a href="https://rentry.co/irwasyh"> インフォーダンプ</a>  
 </p>
