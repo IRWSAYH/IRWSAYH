@@ -4,7 +4,7 @@
   </p>
   
 
-  <sub>[新book 𓂃 ](https://irwsayh.atabook.org/?page=1)</sub>
+  <sub>[新book 𓂃 ](https://irwsayh.atabook.org)</sub>
 
 <br> 
   <details>
