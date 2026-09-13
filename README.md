@@ -10,7 +10,7 @@
   <details>
   <summary> ⚞^. .^⚟ </summary>
     
-  $\tiny{\textsf{gema juniper rou joo sword c+h-ers 𝜗ৎ}}$ 
+  $\tiny{\textsf{gema juniper rou joo sword sage collie c+h-ers 𝜗ৎ}}$ 
 
 </details>
 
