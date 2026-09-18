@@ -1,17 +1,9 @@
-<p align="right">
-  $\tiny{\textsf{29 pearls in your kiss,}}$ 
-<br>    $\tiny{\textsf{a singing smile.}}$ 
-  </p>
-  
-
-  <sub>[leave a message 𓂃 ](https://walloftext.co/robertpattinson)</sub>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Almendra&size=85&duration=1000&pause=1570&color=A90000&multiline=true&repeat=false&width=1400&height=300&lines=JUDAS%3A+...Who's+that%3F;JESUS%3A+Is+there+ever+anybody+else%2C+Judas%3F)](https://git.io/typing-svg)
 
 <br> 
   <details>
-  <summary> ⚞^. .^⚟ </summary>
+  <summary> - </summary>
     
   $\tiny{\textsf{gema juniper rou joo sword sage collie c+h-ers 𝜗ৎ}}$ 
 
 </details>
-
-<img width="500" height="321" alt="image" src="https://github.com/user-attachments/assets/56ac2657-b20e-4e79-8557-35021a968069" />
