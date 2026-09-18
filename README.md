@@ -4,7 +4,7 @@
   </p>
   
 
-  <sub>[新book 𓂃 ](https://irwsayh.atabook.org)</sub>
+  <sub>[leave a message 𓂃 ](https://walloftext.co/robertpattinson)</sub>
 
 <br> 
   <details>
