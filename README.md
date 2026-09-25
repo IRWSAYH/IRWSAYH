@@ -4,6 +4,6 @@
   <details>
   <summary> - </summary>
     
-  $\tiny{\textsf{gema juniper rou joo sword sage collie raysinet-tea  }}$ 
+  $\tiny{\textsf{gema juniper rou joo sword sage collie raysinet-tea val }}$ 
 
 </details>
