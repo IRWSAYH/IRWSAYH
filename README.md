@@ -1,4 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Almendra&size=85&duration=4200&pause=1570&color=A90000&multiline=true&repeat=false&width=1400&height=300&lines=JUDAS%3A+...Who's+that%3F;JESUS%3A+Is+there+ever+anybody+else%2C+Judas%3F)](https://git.io/typing-svg)
+<p align=center>
+  <img src=https://64.media.tumblr.com/0c39006a3f5085cf380577ec9658954e/d43b18e51de18556-96/s540x810/2ea23f4f0212692277dce264cb0af9add1fe2921.gifv>
+</p>
 
 <br> 
   <details>
